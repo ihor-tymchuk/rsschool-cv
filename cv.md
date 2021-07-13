@@ -1,7 +1,7 @@
 # Ihor Tymchuk
 ## Contact
 > - Chernivtsi
->
+> :wink: :crush: :cry: :tear: :laughing: :yum:
 > - https://github.com/ihor-tymchuk
 > - @IhorTym
 > - igortym777@gmail.com
